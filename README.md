@@ -1,0 +1,1 @@
+# sapporo_mosque_app
